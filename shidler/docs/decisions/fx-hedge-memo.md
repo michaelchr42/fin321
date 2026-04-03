@@ -2,7 +2,7 @@
 
 **TO:** Chief Financial Officer  
 **FROM:** Michael Christensen, Finance  
-**DATE:** April 2, 2026  
+**DATE:** April 3, 2026  
 **RE:** EUR Receivable Exposure & Hedging Consideration  
 **CLASSIFICATION:** Internal/Confidential  
 
